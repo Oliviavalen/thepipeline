@@ -1,5 +1,18 @@
 # Everything You May Want to Know (that I can publicly post)
 
+🔔
+- **9.18 @ EVENING UPDATE:** If you have messaged me on Session and I have not responded. Send it again.
+- Catching up on messages. Will get back in touch with everyone as I can. Reminder: I do not ghost.
+- Take this time to **LIKE all my posts on my Reddit profile page**, and the one that led you to me. I need Reddit karma to keep from getting deleted.
+- I do not have time to check to see if upvoted all my posts. We're all adults and our word is our bond. I can count the "likes."
+- If I see you have *not* upvoted the posts, you will be exiled from this project forever.
+- Give me the same respect that I am giving you, and **reciprocate** the energetic investment into you and this project.
+- We will not be using this place for PSAs forever. Thanks to everyone who is giving their full cooperation to make this work. Good sub.
+- **If I give you a task or assignment, your job is to do it. If there's an obstacle, figure it out. That's why I specified gamers and system thinkers. You're here because you can troubleshoot on your own and I cannot waste me energy holding your hand on basic tasks. Your job is to get it done or get out. As much as I like to answer questions, it's a courtesy. You don't need to understand how my system works to follow it. If you can't follow simple instructions--leave.**
+- Created new OPEN Tasks file.
+
+#
+
 *Some of this is repetitive, but reddit mods are nosey and I don't want there to be confusion about what this is (free but with strict caveats).
 
 
