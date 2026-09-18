@@ -21,7 +21,21 @@ This is for those considering **Relaxed, No-Pressure, Platonic D/s Connections. 
 
 ---------------------------------------------------------------------------------------------------------------------
 
+### UPDATE
 
+I know I'm probably breaking "domme" rules by talking to you like a human and showing I have more than one dimension to me, but fuck it. I pride myself in my willingness to break the 4th wall.
+
+At this moment, I have 50+ chats in my Reddit. I wish I could've added more information in my post or even on my profile to avoid all this, but alas, Reddit Mod Gods (hereforth known as RMG).
+
+I didn't expect such a big response so quickly and I was completely unprepared. I wish I could've answered everyone's questions upfront but RMG will delete me. Again.
+
+I wish I could've written this with a whole lot more personality, but you'll just have to solve that mystery on your own b/c I want to focus on getting you up and running with a functional, enjoyable dynamic asap--for those who stick around. Hopefully RMG will let me respond to half of you.
+
+Please do not hesitate to share this with any other interested "subs" in the event that happens. I'm committed to this and to everyone else who commits. Managing multiples is not a problem. If it becomes so, I'll stop accepting until I've leveled out again. Simple as that. But it will take a few days to get everything sorted.
+
+Please look around--that's me screening you and you allowing yourself to self-select. Don't hesitate to use any communication channels you may or may not find (with respect, RMG--fk you). Heavily moderated here (even off reddit), guys. That's all I can say.
+
+Livia
 
 
 
