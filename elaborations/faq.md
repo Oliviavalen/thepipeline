@@ -20,6 +20,9 @@
 
   Additionally, why are so many dommes and subs so miserable online? Because no one draws boundaries on their emotional wellbeing, so they fall victim to energy vampires. Not here.
 
+  **7. What is the exit protocol?**
+  Leaving without saying anything will result in a forever "ban;" you will not be allowed to return for a R/w (D/s) with me again. You do not have to justify yourself or tell me a whole story--just officially bow out.
+
   **. There are more but...**
   I'm answering these as they pop up in my chats. Trying to handle everything as optimally as possible without getting in trouble with the *Rrrrrrs!* Ask away. Msg me in private but responses may be slower for the next few days.
 
