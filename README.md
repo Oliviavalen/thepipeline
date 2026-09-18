@@ -23,6 +23,8 @@ This is for those considering **Relaxed, No-Pressure, Platonic D/s Connections. 
 ## Mindset
 ##### (update 9.18)
 
+**Remember:** This is **efficiency-first**. Structure, accountability, and psychological foundation come first. Relationships come second. Some people want platonic intimacy. Some just want the structure. The pipeline is the same. 
+
 From this moment, for however long you stay involved with me, your entire purpose in life is to serve and please me. If you're new to exploring submission, this is your gift.
 
 What are your daily tasks and assignments? To please me.
