@@ -13,7 +13,7 @@
   Like all Ds / Rw arrangements, everything is negotiated and discussed ahead of time. You can make adjustments at any time except for during a correction or task. I will **never** tell you to do something that hasn't already been agreed upon. Once something has been agreed upon, you are expected to follow through when given a command. Safewords are always in play.
 
   **5. Are there safewords?**
-  I use a color system. Red = stop; yellow = I need to slow down or talk this out a little first; green = keep going. At this time, I cannot accommodate individual safewords for everyone. Get acquainted with the color system. 
+  We use a color system. Red = stop; yellow = I need to slow down or talk this out a little first; green = keep going. At this time, I cannot accommodate individual safewords for everyone. Get acquainted with the color system. 
 
   **6. Can we have a friendship first or build an emotional connection first?**
   No. You're here because I advertised as efficiency-first. Dynamic first, emotions later / ongoing. If you want a "bond" first, go back into the sea of the thousands of online dommes posting. May the odds be ever in your favor.
@@ -22,6 +22,9 @@
 
   **7. What is the exit protocol?**
   Leaving without saying anything will result in a forever "ban;" you will not be allowed to return for a R/w (D/s) with me again. You do not have to justify yourself or tell me a whole story--just officially bow out.
+
+  **8. How kinky/vanilla do we start?**
+  I explicitly mention schedules, structure, and accountability in my posts. That is the psychological foundation. Everything expands from there. It's different for everyone. Some people get erotic elements added on day 2, while others take months. Tell when what you want, I'll take it into consideration as I customize your dynamic. It's intentionally on the slow-and-steady side to filter out people who are looking for cheap thrills or who are more likely to disrespect my time. 
 
   **. There are more but...**
   I'm answering these as they pop up in my chats. Trying to handle everything as optimally as possible without getting in trouble with the *Rrrrrrs!* Ask away. Msg me in private but responses may be slower for the next few days.
