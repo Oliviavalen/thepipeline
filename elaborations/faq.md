@@ -1,10 +1,21 @@
 ## FAQ
 
 **1. What do I get out of it?**
-   Digital, task-based submission. It's all I can go into on a public site. It's nothing nefarious or anything--except for severe lack of freedom of speech by the reddit powers that be. Suffice it to say, there are a couple things I'm really passionate about and your service goes a long way towards that. Happy to talk more in private channels.
+   Fulfillment in care of sub, digital and creative services, feedback so I can refine this no-emotion-upfront method. I have plans!
 
 **2. How do the schedules work?**
-  However you want. We'll figure that out together. No two people have exactly the same needs. Very frequently they involve turning over executive functions for food and clothes. Routine check-ins, all the basics and sometimes more unique requests. It's what you need and what works with your life. That's what we make work.
+  However you want; everyone is different. By focusing on efficiency first (rather than emotion) all that emotional bandwidth that normally gets poorly invested in the "let's get to know each other first" crap, instead goes right into customizing our dynamic.
 
-  **3. There are more but...**
+  **3. How does communication work?**
+  Anyone who is accepted will have open email and text commo access to me for as long as they uphold their commitments. You will check in at your appointed times. You are obligated to communicate anytime you want to make an adjustment or have a request. Open and efficient communication is the bedrock of a lasting dynamic and friendship--if it goes there.
+
+  **4. How do adjustments work?**
+  Like all Ds / Rw arrangements, everything is negotiated and discussed ahead of time. You can make adjustments at any time except for during a correction or task. I will **never** tell you to do something that hasn't already been agreed upon. Once something has been agreed upon, you are expected to follow through when given a command. Safewords are always in play.
+
+  **5. Are there safewords?**
+  I use a color system. Red = stop; yellow = I need to slow down or talk this out a little first; green = keep going. At this time, I cannot accommodate individual safewords for everyone. Get acquainted with the color system. 
+
+  **6. There are more but...**
   I'm answering these as they pop up in my chats. Trying to handle everything as optimally as possible without getting in trouble with the *Rrrrrrs!* Ask away. Msg me in private but responses may be slower for the next few days.
+
+  Keep the questions coming, guys. You're doing great. -Liv
