@@ -7,6 +7,7 @@
 - I do not have time to check to see if upvoted all my posts. We're all adults and our word is our bond. I can count the "likes."
 - If I see you have *not* upvoted the posts, you will be exiled from this project forever.
 - Give me the same respect that I am giving you, and **reciprocate** the energetic investment into you and this project.
+- This is **digital, service-based** submission. You will need to use your email daily.
 - We will not be using this place for PSAs forever. Thanks to everyone who is giving their full cooperation to make this work. Good sub.
 - **If I give you a task or assignment, your job is to do it. If there's an obstacle, figure it out. That's why I specified gamers and system thinkers. You're here because you can troubleshoot on your own and I cannot waste me energy holding your hand on basic tasks. Your job is to get it done or get out. As much as I like to answer questions, it's a courtesy. You don't need to understand how my system works to follow it. If you can't follow simple instructions--leave.**
 - Created new OPEN Tasks file.
