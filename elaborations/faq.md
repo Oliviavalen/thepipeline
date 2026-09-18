@@ -15,7 +15,12 @@
   **5. Are there safewords?**
   I use a color system. Red = stop; yellow = I need to slow down or talk this out a little first; green = keep going. At this time, I cannot accommodate individual safewords for everyone. Get acquainted with the color system. 
 
-  **6. There are more but...**
+  **6. Can we have a friendship first or build an emotional connection first?**
+  No. You're here because I advertised as efficiency-first. Dynamic first, emotions later / ongoing. If you want a "bond" first, go back into the sea of the thousands of online dommes posting. May the odds be ever in your favor.
+
+  Additionally, why are so many dommes and subs so miserable online? Because no one draws boundaries on their emotional wellbeing, so they fall victim to energy vampires. Not here.
+
+  **. There are more but...**
   I'm answering these as they pop up in my chats. Trying to handle everything as optimally as possible without getting in trouble with the *Rrrrrrs!* Ask away. Msg me in private but responses may be slower for the next few days.
 
   Keep the questions coming, guys. You're doing great. -Liv
