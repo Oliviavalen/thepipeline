@@ -20,6 +20,8 @@ Everyone filters out triflers and malingers by demanding payment up front, as mo
 
 **1 Decide:** You have enough information at your disposal to decide on your own if you want to move forward with an online, service-based, R/w relationship with me.
 
+You have my session and kik, consider that open access to txt me whenever you want, so long as you don't abuse it. However, I cannot commit to consistent communication with you unless you have committed to me and have demonstrated that by making it through the pipeline. **That is why I advertised this as "dynamic first, relationship second." It's what you need out of a dynamic first, and relationship develops naturally over time.** 
+
 **2. Contact:** Send a message and say what you want.
     Treat it as you would any other place of business, even though it's personal. Open with what you want and need. Be as detailed as possible.
     
