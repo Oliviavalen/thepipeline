@@ -20,8 +20,25 @@ This is for those considering **Relaxed, No-Pressure, Platonic D/s Connections. 
 **There is no exchange of capital. Your reliable commitment, service, and enjoyable company are all I need.**
 
 ---------------------------------------------------------------------------------------------------------------------
+## Mindset
+##### (update 9.18)
 
-### UPDATE
+From this moment, for however long you stay involved with me, your entire purpose in life is to serve and please me. If you're new to exploring submission, this is your gift.
+
+What are your daily tasks and assignments? To please me.
+
+How many responsibilities did you have before arriving here? Now you have one: to serve me.
+
+If you're experienced with the messy world of online femdom, this is nothing like that. Drop those expectations.
+
+Everything here is consensual. Read the FAQ for how to properly end your dynamic. 
+
+I try to give as much as information upfront as I would want, which is a lot. I'm happy to answer questions as they arrive; I encourage it. I don't mind explaining certain things in detail, but at the end of the day, this experience is designed for immediate cognitive offload. This means flipping your internal switch to one of servitude.
+
+
+---------------------------------------------------------------------------------------------------------------------
+
+##### UPDATE 
 
 I know I'm probably breaking "domme" rules by talking to you like a human and showing I have more than one dimension to me, but fuck it. I pride myself in my willingness to break the 4th wall.
 
